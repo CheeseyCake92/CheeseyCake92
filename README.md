@@ -1,8 +1,8 @@
 ### Funny bio
 Pronouns: She/Her
 
-I'm usually more active on Discord: CheeseyCake92
-Since Guilded is based and allows me to have far higher character count, here's my actual about me.
+I'm usually more active on Discord: CheeseyCake92<br>
+Since Github allows you to do funny markdown stuff with a far higher character limit, here's my actual about me.
 ----------------------------------------------------------
 I mostly use this branch of accounts for ERP and NSFW purposes(No IRL pictures or videos. I neither am comfortable with that, or have enough self confidence for that)
 So if you find NSFW content/ERP uncomfortable, you might want to look elsewhere
