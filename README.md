@@ -19,6 +19,6 @@ My profile picture is a modified screenshot from Starbound because I'm too lazy 
 I'm one of those weirdos that like in-engine Minecraft NSFW content. Although more than just a skin, vanilla NSFW skins are pretty boring
 ----------------------------------------------------------
 Links:
-[Pronouns.page](https://en.pronouns.page/@cheeseycake923)
-[Tumblr](https://cheeseycake92.tumblr.com/)
-[Discord](https://discordapp.com/users/950673801153249303)
+[Pronouns.page](https://en.pronouns.page/@cheeseycake923)<br>
+[Tumblr](https://cheeseycake92.tumblr.com/)<br>
+[Discord](https://discordapp.com/users/950673801153249303)<br>
