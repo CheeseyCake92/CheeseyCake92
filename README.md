@@ -2,12 +2,13 @@
 Pronouns: She/Her
 
 I'm usually more active on Discord: CheeseyCake92<br>
-Since Github allows you to do funny markdown stuff with a far higher character limit, here's my actual about me.
 ----------------------------------------------------------
+Since Github allows you to do funny markdown stuff with a far higher character limit, here's my actual about me.
+
 I mostly use this branch of accounts for ERP and NSFW purposes(No IRL pictures or videos. I neither am comfortable with that, or have enough self confidence for that)
 So if you find NSFW content/ERP uncomfortable, you might want to look elsewhere
 
-I only really find females attractive, sooo. If you're gonna ERP with me, I'd prefer if you RP as female
+I only really find females attractive. Sooo, If you're gonna ERP with me, I'd prefer if you RP as female
 
 I like coding, I sometimes draw and as stated above I like to ERP
 
@@ -19,3 +20,5 @@ I'm one of those weirdos that like in-engine Minecraft NSFW content. Although mo
 ----------------------------------------------------------
 Links:
 [Pronouns.page](https://en.pronouns.page/@cheeseycake923)
+[Tumblr](https://cheeseycake92.tumblr.com/)
+[Discord](https://discordapp.com/users/950673801153249303)
