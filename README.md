@@ -17,7 +17,7 @@ I'm usually online between 1:00(AM) to 5:00(AM) Eastern Standard Time
 
 My profile picture is a modified screenshot from Starbound because I'm too lazy to make a proper profile picture
 
-I'm one of those weirdos that like in-engine Minecraft NSFW content. Although more than just a skin, vanilla NSFW skins are pretty boring
+I'm one of those weirdos that like in-engine Minecraft NSFW content using something like Figura. Although more than just a skin, vanilla NSFW skins are pretty boring
 
 ----------------------------------------------------------
 Links:
