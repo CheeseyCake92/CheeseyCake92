@@ -25,5 +25,5 @@ I'm one of those weirdos that like in-engine Minecraft NSFW content using someth
 ----------------------------------------------------------
 Links:
 [Pronouns.page](https://en.pronouns.page/@cheeseycake923)<br>
-[Discord](https://discordapp.com/users/950673801153249303)<br>
+[Discord (CheeseyCake9238)](https://discordapp.com/users/950673801153249303) (When contacting me on Discord, please try to DM me before friending me)<br>
 [Tumblr](https://cheeseycake92.tumblr.com/)<br>
