@@ -2,16 +2,19 @@
 Pronouns: She/Her
 
 I'm usually more active on Discord: CheeseyCake92
+> [!CAUTION] 
+> **If you find NSFW content and ERP uncomfortable or are a minor, you should look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content**
+
 
 ----------------------------------------------------------
-Since Github allows you to do funny markdown stuff with a far higher character limit, here's my actual about me.
+Since Github allows you to do funny markdown stuff with a far higher character limit, here's a bunch of random things about me
 
-I mostly use this branch of accounts for ERP and NSFW purposes(No IRL pictures or videos. I neither am comfortable with that, or have enough self confidence for that)
-**If you find NSFW content/ERP uncomfortable or are a minor, you should look elsewhere**
+I mostly use this branch of accounts for ERP and NSFW purposes (No IRL pictures or videos. I am neither comfortable with that, nor do I have enough self confidence for that)
 
-I only really find females attractive. Sooo, If you're gonna ERP with me, I'd prefer if you RP as female
 
-I like coding, I sometimes draw and I sometimes like to ERP
+I only really find women attractive. So if you're gonna ERP with me, I'd prefer if you RP as a woman
+
+I like coding, I sometimes draw, I sometimes like to ERP, I sometimes like to make nsfw content using code :3
 
 I'm usually online between 1:00(AM) to 5:00(AM) Eastern Standard Time
 
