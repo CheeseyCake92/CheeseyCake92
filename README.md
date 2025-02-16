@@ -1,29 +1,21 @@
-### Funny bio
+## Funny bio
+> [!CAUTION] 
+> **If you find NSFW content and ERP uncomfortable or are under 18, please look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content**
 Pronouns: She/Her
 
-I'm usually more active on Discord: CheeseyCake92
-> [!CAUTION] 
-> **If you find NSFW content and ERP uncomfortable or are a minor, you should look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content**
+**TL;DR:** I am funni (currentYear-May 2005) year old transfem with interests in NSFW content
+I'm usually more active on Discord: CheeseyCake9238
 
 
-----------------------------------------------------------
-Since Github allows you to do funny markdown stuff with a far higher character limit, here's a bunch of random things about me
 
-I mostly use this branch of accounts for ERP and NSFW purposes (No IRL pictures or videos. I am neither comfortable with that, nor do I have enough self confidence for that)
+* This is a branch of accounts for ERP or NSFW purposes/content I use between 1:00 AM and 5:00 AM Eastern Standard Time. 
+* I'm not interested in, nor will I post ANY IRL content on these accounts.
+* Sexual content that containing appendages that usually appear on males or masculine figures make me extremely uncomfortable.
+* I have an interest in programming, drawing, a bit of ERP and have been lightly getting into writing. I also have an interest in sexual content on Minecraft using mods like Figura or CPM. Although more than 
+* My profile picture is usually a modified screenshot from Starbound or a custom drawing I made of said screenshot
 
-
-I only really find women attractive. So if you're gonna ERP with me, I'd prefer if you RP as a woman
-
-I like coding, I sometimes draw, I sometimes like to ERP, I sometimes like to make nsfw content using code :3
-
-I'm usually online between 1:00(AM) to 5:00(AM) Eastern Standard Time
-
-My profile picture is a modified screenshot from Starbound because I'm too lazy to make a proper profile picture
-
-I'm one of those weirdos that like in-engine Minecraft NSFW content using something like Figura. Although more than just a skin, vanilla NSFW skins are pretty boring
-
-----------------------------------------------------------
-Links:
-[Pronouns.page](https://en.pronouns.page/@cheeseycake923)<br>
-[Discord (CheeseyCake9238)](https://discordapp.com/users/950673801153249303) (When contacting me on Discord, please try to DM me before friending me)<br>
-[Tumblr](https://cheeseycake92.tumblr.com/)<br>
+## Places you can find me
+* [Discord (CheeseyCake9238)(Most active)](https://discordapp.com/users/950673801153249303) 
+(When contacting me on Discord, please try to DM me before friending me. This is the easiest way to contact me)<br>
+* [Pronouns.page](https://en.pronouns.page/@cheeseycake923)<br>
+* [Tumblr](https://cheeseycake92.tumblr.com/)<br>
