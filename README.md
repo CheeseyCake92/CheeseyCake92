@@ -1,6 +1,8 @@
 ## Funny bio
 > [!CAUTION] 
 > **If you find NSFW content and ERP uncomfortable or are under 18, please look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content**
+
+
 Pronouns: She/Her
 
 **TL;DR:** I am funni (currentYear-May 2005) year old transfem with interests in NSFW content
