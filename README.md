@@ -5,7 +5,7 @@
 
 Pronouns: She/Her
 
-**TL;DR:** I am funni (currentYear-May 2005) year old transfem with interests in NSFW content
+**TL;DR:** I am funni (currentYear-May 2005) year old transfem with interests in NSFW content<br>
 I'm usually more active on Discord: CheeseyCake9238
 
 
