@@ -1,6 +1,6 @@
 ## Funny bio
 > [!CAUTION] 
-> **If you find NSFW content and ERP uncomfortable or are under 18, please look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content**
+> **If you find NSFW content and ERP uncomfortable or are under 18, please look elsewhere. If you HAVE to contact me, plainly specify that you have no interest for NSFW content and/or cannot look at it**
 
 
 Pronouns: She/Her
