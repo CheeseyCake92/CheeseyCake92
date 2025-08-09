@@ -10,7 +10,7 @@ I'm usually more active on Discord: CheeseyCake9238
 
 
 
-* This is a branch of accounts for ERP or NSFW purposes/content I use between 1:00 AM and 5:00 AM Eastern Standard Time. 
+* This is a branch of accounts for ERP or NSFW purposes/content I use between 21:00 and 1:00 or 9:00 PM and 1:00 AM Eastern Standard Time. 
 * I'm not interested in, nor will I post ANY IRL content on these accounts.
 * Sexual content that contains appendages that usually appear on males or masculine figures make me extremely uncomfortable.
 * I have an interest in programming, drawing, a bit of ERP and have been lightly getting into writing. I also have an interest in sexual content on Minecraft using mods like Figura or CPM. Although more Figura than CPM
